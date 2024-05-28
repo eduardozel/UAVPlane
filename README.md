@@ -4,6 +4,7 @@ UAV Plane
 https://www.youtube.com/watch?v=nn87IyFPEy4
 https://www.youtube.com/watch?v=q6YIdY0WnOY
 https://www.youtube.com/watch?v=WtJtkg6NLmQ&list=PLRXJZnszehb3pneyUKRqafYEfaL0DuyV8&index=6
+https://www.youtube.com/watch?v=O6jGkFuswp8
 
 https://aliexpress.ru/item/4000898521575.html?pdp_npi=3%40dis%21EUR%2123.36%2113.79%21%21%21%21%21%402116465616899544197181807d03f2%2112000029797777620%21affd%21%21&aff_fcid=3f7c3cdee87348b5bcacbc31120198f2-1716883496530-01847-_EyjnBeX&aff_fsk=_EyjnBeX&aff_platform=portals-billboard-tn&sk=_EyjnBeX&aff_trace_key=3f7c3cdee87348b5bcacbc31120198f2-1716883496530-01847-_EyjnBeX&terminal_id=1f312b3887f1401cb2eeabf3f583a3d5&afSmartRedirect=y&sku_id=12000038377537052
 
