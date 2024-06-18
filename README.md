@@ -31,3 +31,9 @@ Matek F405-WTE
 Matek F411-WSE
 Matek F411-WTE
 
+ArduPilot
+Lua
+https://youtu.be/HVV8Jd67Q8o?si=ac4yKR5xGbK5VNHg
+
+RIPPER R690 / КРЫЛО
+https://youtu.be/9QpOsU1MHKs?si=hKwYOx1ScAWgCr7U
