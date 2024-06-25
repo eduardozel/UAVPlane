@@ -26,6 +26,12 @@ https://aliexpress.ru/wholesale?SearchText=Beitian+BN-180+GPS&g=y&page=1&searchI
 
 https://aliexpress.ru/wholesale?SearchText=Matek+F411-WTE+Flight+Controller&CatId=undefined&g=y&page=1&searchInfo=A0kQx8mqUqA25lYU0tV3Ttc64BuO4DzkpVLZGo68yB0gC5Nr+F4mvAd4yLfJDOKLOdpO65kLq7qCsjIaAzMJppyZZKzia2zI80sLR4l4s+29kXkaYaeQtS%2FHDqfJPS3VYuBLIn6GU7Bk9YhmH%2F4YXzxS5zdbF8aJXdLXGdvG7sDxfrNkw8RKN9x%2FwT9IDRQlkoUXqwxg%2FIxGPf9xilHBjUSUUTNGTDlcTn+u8htq5lpXOxJMmhVQF0QD2qkUYwHgSuA9eKltloJwWV2yV5adETkqXwlvTfTb7feg5tuGCdZP9VNEr4hvnp2jVdgfmmNi6x0pM9S0QGG6jhr3KMT8T52YwA90js7tf8Q7559U0wwJvg%3D%3D
 
+Бесщеточный двигатель гоночный Diatone MAMBA TOKA 2004 1700KV/2900KV
+https://aliexpress.ru/item/1005003267097032.html?spm=a2g2w.orderdetail.0.0.3f314aa6L2m2QA&sku_id=12000024935835742&tt=MG&utm_medium=sharing
+
+504060 6-лопастной пропеллеры CW CCW 5-дюймовые пропеллеры лезвие для FPV квадрокоптера гоночного радиоуправляемого дрона
+https://aliexpress.ru/item/1005004541252535.html?spm=a2g2w.orderdetail.0.0.4b834aa6MC0ITH&sku_id=12000029538090465&tt=MG&utm_medium=sharing
+
 
 Matek F405-WTE
 Matek F411-WSE
